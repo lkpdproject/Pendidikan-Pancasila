@@ -1,0 +1,2 @@
+# Pendidikan-Pancasila
+E-LKPD PENDIDIKAN PANCASILA FASE E
